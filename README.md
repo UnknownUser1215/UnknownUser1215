@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @UnknownUser1215
+- 👀 I’m interested in coding, animation, art and many things
+- 🌱 I’m currently learning Javascript and block coding 
+- 💞️ I’m looking to collaborate on nothing yet
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: I love bfdi(battle for dream island on YouTube) and smg4(YouTuber abouts funny mario stuff in gmod)!
+- I have a YouTube channel too http://www.youtube.com/@Unknown_C.A. <!---
