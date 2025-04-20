@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on nothing yet
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I love bfdi(battle for dream island on YouTube) and smg4(YouTuber abouts funny mario stuff in gmod)!
-- I have a YouTube channel too http://www.youtube.com/@Unknown_C.A. <!---
+- I have a YouTube channel too! http://www.youtube.com/@Unknown_C.A.T
